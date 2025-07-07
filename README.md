@@ -11,6 +11,6 @@
 如果你在寻找日本AV免费资源，我们提供高清、无广告、免注册的影片，确保最佳观影体验。每周更新最新内容，满足不同需求。无需订阅，立即观看，且支持匿名保护，保障隐私安全。轻松访问，完全免费，畅享无广告、流畅播放的高清影片。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/pk20250707/pk11 ）</span>
 
 
